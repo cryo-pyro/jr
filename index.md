@@ -28,3 +28,41 @@ If we map his phrasing onto your 1st-principles ladder:
 He basically did a mini-Ukubona pentad without knowing it. 😅
 
 Want me to sketch this as a compact little diagram — his sentence mapped step by step into your Δ → Gradient → Collision → Emergence → Recursion flow?
+
+# C
+Perfect — yes, this sits most cleanly inside your **M = Mathematical / Metaphorical (Neuron) Pentad**. Let’s line it up carefully:
+
+---
+
+## 🧠 Neuron Metaphor (PBSMC → M)
+
+* **Three afferent dendrites (inputs)**
+
+  1. **Unplanned / Tactical** → impulsive mischief, limit-testing, boundary collisions.
+  2. **Ritualized / Informational** → rule-following, behaving to earn a promised Christmas reward, aligning with adult expectations.
+  3. **Planned / Strategic** → (not in play yet for him, but eventually: deliberate choices, “If I do X now, I’ll achieve Y later”).
+
+* **Soma / Axon (central integration + transmission)**
+
+  * You laughing at his “I’m bored” → you acted like the soma, integrating his inputs and responding with empathy/serenity rather than punishment.
+
+* **Efferent dendrites (splicing / operational)**
+
+  * His play shifted operationally: targeting zombies instead of you. That’s a **re-routing of output** toward safer/more constructive channels.
+
+* **Effector tissues/organs/systems (existential recursion)**
+
+  * The jumpsuit + Christmas promise became his existential frame — now his behavior “recurses” into a broader system of meaning: “If I behave → I get reward → I belong in the story of Halloween/Christmas.”
+
+---
+
+## 🎭 The Two Modes You Saw
+
+* **Mischief Mode → Tactical (unplanned, chaotic afferent dendrite firing).**
+* **Serenity Mode → Informational (ritualized, rule-following, afferent dendrite 2).**
+
+And your own role: **Pyromancer as soma** — laughing in recognition, balancing the inputs, letting serenity dominate instead of escalating conflict.
+
+---
+
+Would you like me to draw this explicitly as a **neuron diagram with two dendrites lighting up** (one tactical, one informational), so you can visually track how his “modes” are literally the branches feeding into soma → axon → effector systems?
